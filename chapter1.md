@@ -1,1 +1,3 @@
-Adam kadını belinden yakalar!
+Adam kadını belinden yakalari!
+
+Domaltıp sikti
