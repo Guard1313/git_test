@@ -1,0 +1,1 @@
+Adam kadını belinden yakalar!
